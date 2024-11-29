@@ -10,7 +10,7 @@
 
 ⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏✦ __**JEARS**__ ✦ 
 
-⠀                                     ⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏𓏴 HE  ｡  HIM  ｡  THEY ⠀e
+⠀                                     ⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏𓏴 HE  ｡  HIM  ｡  THEY ⠀♋
 
 ⠀⠀ ͏͏͏                               ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏   ![](https://64.media.tumblr.com/5b0cf436997c54b0eae472e99a88f17a/f8fe48411339d1b7-91/s75x75_c1/e10f386653c732a908a08ed60bb8730204987641.pnj) ₊ ![](https://64.media.tumblr.com/ea16ce641afebf6712bdb02d8b13005e/f8fe48411339d1b7-e0/s75x75_c1/be700a2a6875970dcc36ebc67860499929dbf482.pnj)  ⛓  ASK FOR AGE  ♤ TOTALLY TAKEN GUYS TRUST.. ♊♒ 
 
