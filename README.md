@@ -1,4 +1,8 @@
-![](https://64.media.tumblr.com/0083628c9f1fd1eb384a3b1d3a8c9230/8a8e098aaf53db74-5c/s1280x1920/948728c89f75a867f94991f9b08cf2093d254414.pnj)
+![](https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv)
+
+he might be bearing witness to the closest a human could come to being ethereal.
+
+He looks like a star.
 
 ![](https://komarev.com/ghpvc/?username=elcafeina&amp;color=green)
 
@@ -11,5 +15,16 @@
 ⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀〈 ⸝ ⸝ YoUr cAt iS DeAd! ShE WaS YoUr oNlY FrIeNd, YoUr cAt iS DeAd! FuCk! ThIs iS VeRy sAd! :o) ⸝ ⸝  〉
                                                          pk!s dbxot
 
+![](https://64.media.tumblr.com/4dd05c55313efa00d456d4dded3fcfe0/806d4619ca73f063-09/s250x400/c1b8f317254c50ca12cfa8fbb09ddee4d9e50587.gifv)
+![](https://64.media.tumblr.com/9ed0667d8e6a85896f89de35f77a6aaa/806d4619ca73f063-21/s250x400/2e88e4dcbefc68210d4dc9c3dd2db2b275f21c9b.gifv)
 
-![](https://64.media.tumblr.com/132e7cc0e7dc171602ca1a6523221875/8a8e098aaf53db74-f4/s1280x1920/8fb1704a4346f42d3d3c1e5b72ddc034c4304c8d.pnj)
+![](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
+
+interests v
+
+![](https://64.media.tumblr.com/aa20940a693d3270ceeb2667165dd6c1/8102d034afa52614-fc/s400x600/d7adc01ed1c86e1a9e081a93ba6ae1ef865346b3.gifv)
+![](https://64.media.tumblr.com/37d167e6cefbbfa93f1497c4ba6819b3/729e2ac6f0e4f17a-cd/s250x400/8fc2871c564de0a0c734cac59daab3b4d46a7698.gifv)
+![](https://64.media.tumblr.com/0fb2d88ce1c46a92faa714a2dcc08bc2/0dbb877b56918480-cf/s100x200/538ddae26d3657c6273cc88e5f47de4914d10fc6.gifv)
+![](https://64.media.tumblr.com/0f4c265120839cd2fef60923ba90a17a/d2cc6f426274b943-52/s250x400/55efc6e1af22ebb30602e31cc2209c6c516f404d.gifv)
+![](https://64.media.tumblr.com/b7d99e6eddcf2c59a9f1f8e1ce9db4b6/ea5d9e7e2702987f-55/s100x200/63c063d22a87214066d4b7e61943aebbbd2ca6a0.pnj)
+![](https://64.media.tumblr.com/4d650477e2d520c62e17b25f43cef236/0350c417789d02b5-29/s100x200/9038aa7fde3decb49a13b5d783e7350a161d5ae3.gifv)
