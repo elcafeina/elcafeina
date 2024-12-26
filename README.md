@@ -20,6 +20,8 @@ He looks like a star.
 
 ![](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
 
+He's not a star, he's just a scruffy boy.
+
 interests v
 
 ![](https://64.media.tumblr.com/aa20940a693d3270ceeb2667165dd6c1/8102d034afa52614-fc/s400x600/d7adc01ed1c86e1a9e081a93ba6ae1ef865346b3.gifv)
