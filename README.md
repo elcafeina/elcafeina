@@ -8,6 +8,7 @@ He looks like a star.
 ![](https://komarev.com/ghpvc/?username=elcafeina&color=8b0000&label=♡&style=plastic)
 
 ![](https://64.media.tumblr.com/d3be71600def5854f5d700f2c5bec5b9/b28c94218969a43d-1a/s400x600/7d3ad6bc15b30af6423ca7e1dc953cdd92397c8e.gifv)
+![](https://64.media.tumblr.com/feb4e70f4941bde4be5d7b3fff1fd040/b28c94218969a43d-a0/s400x600/f87616e5446983bdbb397de0a2890529fde9ff67.gifv)
 
 
 ⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏✦ __**JEARS/COSMO**__ ✦ 
