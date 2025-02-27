@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/kl1149.png)
+![](https://64.media.tumblr.com/4270ccde1a44836b4e931e63bb145024/6c786e2d65725895-7d/s2048x3072/9e8903bc4516a7b55410357c8bdbfad36ea95a1d.pnj)
 
 
 he might be bearing witness to the closest a human could come to being ethereal.
@@ -7,8 +7,10 @@ He looks like a star.
 
 ![](https://komarev.com/ghpvc/?username=elcafeina&color=8b0000&label=♡&style=plastic)
 
+![](https://64.media.tumblr.com/d3be71600def5854f5d700f2c5bec5b9/b28c94218969a43d-1a/s400x600/7d3ad6bc15b30af6423ca7e1dc953cdd92397c8e.gifv)
 
-⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏✦ __**JEARS/TWEEK**__ ✦ 
+
+⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏✦ __**JEARS/COSMO**__ ✦ 
 
 ⠀                                     ⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏𓏴 HE  ｡  HIM  ｡  THEY ⠀![](https://cdn.discordapp.com/attachments/695511964813885510/1323390295588732959/Untitled797_20241230124029.png?ex=677456c1&is=67730541&hm=daf8c10a73de76187c79e707b7b39e0811dfb6e5a742d07a31697dec78b90f42&)
 
@@ -17,4 +19,5 @@ He looks like a star.
 
 
 He's not a star, he's just a scruffy boy.
-![](https://cdn.discordapp.com/attachments/695511964813885510/1323389395352555652/Untitled796_20241230123655.png?ex=677455eb&is=6773046b&hm=29e02c74dfcde38f53f310654f9da4f82cc3787211303146b74a750200cb7fa2&)
+
+![](https://64.media.tumblr.com/14c99cb595076d6145ae3db3ebacf3e2/6c786e2d65725895-e6/s2048x3072/b96fe3157e0345ba712225c182e9121e629cb790.pnj)
