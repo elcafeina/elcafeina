@@ -10,7 +10,7 @@
 
 ![](https://komarev.com/ghpvc/?username=elcafeina&color=8b0000&label=♡&style=plastic)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
