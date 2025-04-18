@@ -14,7 +14,7 @@
 
 
 
-⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏<p align="center">✦ __**JEARS/COSMO**__ ✦ 
+⠀⠀                                      ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏<p align="center">✦ __**JEARS**__ ✦ 
 
 ⠀                                     ⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏<p align="center">𓏴 HE  ｡  HIM  ｡  THEY ⠀![](https://cdn.discordapp.com/attachments/695511964813885510/1323390295588732959/Untitled797_20241230124029.png?ex=677456c1&is=67730541&hm=daf8c10a73de76187c79e707b7b39e0811dfb6e5a742d07a31697dec78b90f42&)
 ⠀⠀ ͏͏͏                               ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏   <p align="center">![](https://64.media.tumblr.com/5b0cf436997c54b0eae472e99a88f17a/f8fe48411339d1b7-91/s75x75_c1/e10f386653c732a908a08ed60bb8730204987641.pnj) ₊ ![](https://64.media.tumblr.com/ea16ce641afebf6712bdb02d8b13005e/f8fe48411339d1b7-e0/s75x75_c1/be700a2a6875970dcc36ebc67860499929dbf482.pnj)  ｡  C + H IS ALWAYS ALLOWED  ♤ 
