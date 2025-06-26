@@ -6,7 +6,7 @@
 
 <p align="center"> He looks like a star.
 
-![](https://files.catbox.moe/5uf7ox.png)
+![](https://files.catbox.moe/scac10.png)
 ![](https://64.media.tumblr.com/feb4e70f4941bde4be5d7b3fff1fd040/b28c94218969a43d-a0/s400x600/f87616e5446983bdbb397de0a2890529fde9ff67.gifv)
 
 
