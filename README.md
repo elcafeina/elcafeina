@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/bfrvif.png)
+![](https://files.catbox.moe/be8s6m.png)
 
 
 
@@ -6,10 +6,8 @@
 
 <p align="center"> He looks like a star.
 
-![](https://files.catbox.moe/85xqdp.png)
+![](https://files.catbox.moe/5uf7ox.png)
 ![](https://64.media.tumblr.com/feb4e70f4941bde4be5d7b3fff1fd040/b28c94218969a43d-a0/s400x600/f87616e5446983bdbb397de0a2890529fde9ff67.gifv)
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
@@ -22,5 +20,5 @@
 
 <p align="center"> He's not a star, he's just a scruffy boy.
 
-![](https://files.catbox.moe/5eeb71.png)
+![](https://files.catbox.moe/ph1l9d.png)
 
