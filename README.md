@@ -4,6 +4,7 @@ photos keep on being cropped just ignore them atp im too lazy to fix them
 
 
 
+
 <p align="center"> he might be bearing witness to the closest a human could come to being ethereal.
 
 <p align="center"> He looks like a star.
