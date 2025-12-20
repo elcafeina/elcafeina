@@ -1,4 +1,5 @@
 ![](https://files.catbox.moe/40k4vi.png)
+photos keep on being cropped just ignore them atp im too lazy to fix them
 
 
 
