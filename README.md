@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/be8s6m.png)
+![](
 
 
 
