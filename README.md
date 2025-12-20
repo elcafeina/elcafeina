@@ -2,6 +2,7 @@
 
 
 
+
 <p align="center"> he might be bearing witness to the closest a human could come to being ethereal.
 
 <p align="center"> He looks like a star.
@@ -20,5 +21,5 @@
 
 <p align="center"> He's not a star, he's just a scruffy boy.
 
-![](https://files.catbox.moe/ph1l9d.png)
+![](https://files.catbox.moe/owwbgd.png)
 
