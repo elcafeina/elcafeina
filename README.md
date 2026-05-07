@@ -7,8 +7,8 @@
 
 
   <p align="center">✦ __JEARS ｡ WESTON ｡ BRAD__ ✦ 
-  <p align="center">𓏴 HE  ｡  HIM  ｡  THEY ⠀
-    <a href="https://elcafeina.atabook.org">ATABOOK</a> 
+  <p align="center">𓏴 HE  ｡  HIM  ｡  THEY 
+   ｡ <a href="https://elcafeina.atabook.org">ATABOOK</a> 𓏴
 
 ![](https://files.catbox.moe/mdyjnt.png)
 
