@@ -20,6 +20,12 @@
 
 <p align="center">
   <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Lora&style=italic&size=20&pause=3000&duration=9000&color=669900&center=true&vCenter=true&width=1000&height=100&lines=Aw+jeez+rick!!+I+got+turned+into+a+persona!!" alt="Typing SVG" />
+  </a>
+</p>
+
+<p align="center">
+  <a href="https://git.io/typing-svg">
     <img src=https://files.catbox.moe/dhj904.png />
   </a>
 </p>
