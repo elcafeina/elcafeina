@@ -29,3 +29,9 @@
     <img src=https://files.catbox.moe/dhj904.png />
   </a>
 </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false" alt="Spotify Profile">
+  </a>
+</p>
