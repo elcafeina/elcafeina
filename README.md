@@ -24,6 +24,11 @@
   </a>
 </p>
 
+  <p align="center">✦ DNI RICKORTY. ✦
+
+
+
+
 <p align="center">
   <a href="https://git.io/typing-svg">
     <img src=https://files.catbox.moe/dhj904.png />
