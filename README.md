@@ -27,6 +27,9 @@
 </p>
 
   <p align="center">✦ ZERO RICK YUMESHIP!! DNI RICKORTY. ✦
+    
+  <p align="center">✦ JEARS ｡ TED ｡ ✦ 
+  <p align="center">𓏴 HE  ｡  HIM  ｡  THEY ｡ <a href="https://elcafeina.carrd.co">CARRD</a> 𓏴
 
   <p align="center">
   <a href=>
